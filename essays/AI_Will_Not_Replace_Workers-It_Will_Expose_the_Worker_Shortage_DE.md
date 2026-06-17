@@ -1,4 +1,4 @@
-# KI wird Arbeitnehmer nicht ersetzen — sie wird den Arbeitskräftemangel sichtbar machen
+# KI wird Arbeitsplätze nicht ersetzen — sie wird den Arbeitskräftemangel sichtbar machen
 
 ## Exposé
 
